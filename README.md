@@ -24,6 +24,8 @@ if you want to befriend me, be sure to follow these details about me (and my cop
 
 be aware that i'm TAKEN, i have a girlfriend that i love very much. so no flirting whatsoever! you can still compliment me idm.
 
+If you see me with a skin called "Beegraft", it's my OC! Beegraft is mentally 10 yrs old for plot reason, so any ships or weird comments are to be avoided!
+
 i'm a mood swinger of a person, i get extremely social for one second and then get very silent and distant the other, if i'm acting too much please make me aware!
 
 i'm not a good speaker, in fact i often wait for you to interact first, then i could be an endless yapper (also know that english, although fluent, is not the best so i have a broken english or make typos, don't make fun of me please).
