@@ -10,7 +10,7 @@ PONY TOWN STUFF ONLY OKAY? OKAY.
 
 you may interact anytime you want, as long as i'm online and not with a DNI on my name!
 
-if however i'm not imediatly responding, it may be because i'm offtab or AFK, if i am you're always free to whisper me and i'll respond asap.
+if however i'm not immediately responding, it may be because i'm offtab or AFK, if i am you're always free to whisper me and i'll respond asap.
 
 even if it's not shown in my name, i'm openly offering you to cuddle or hide, no need to ask, just do so! you're also free to move out yada-yada and please whisper me if you want me to move somewhere else of your liking!!
 
@@ -22,13 +22,15 @@ lastly, we (yes, we) are a bunch of 10 copinglinks that behaves differently! how
 
 if you want to befriend me, be sure to follow these details about me (and my copinglinks)
 
+some of my copinglinks doesn't like being shipped, nor wanna roleplay. we are extremely rusty at roleplays and avoid these the most we can.
+
 be aware that i'm TAKEN, i have a girlfriend that i love very much. so no flirting whatsoever! you can still compliment me idm.
 
 If you see me with a skin called "Beegraft", it's my OC! Beegraft is mentally 10 yrs old for plot reason, so any ships or weird comments are to be avoided!
 
 i'm a mood swinger of a person, i get extremely social for one second and then get very silent and distant the other, if i'm acting too much please make me aware!
 
-i'm not a good speaker, in fact i often wait for you to interact first, then i could be an endless yapper (also know that english, although fluent, is not the best so i have a broken english or make typos, don't make fun of me please).
+i'm not a good speaker, in fact i often wait for you to interact first, then i could be an endless yapper (also know that my english, although fluent, is not the best so i have a broken english or make typos, don't make fun of me please).
 
 i have ADHD and waiting-on-a-diagnosis autism, scary i know.
 
@@ -41,5 +43,7 @@ please know that IM AN ADULT, so anyone under 14, please don't interact further,
 if you're a proshipper, darkshipper or whatever the fuck of an excuse to be disgusting, get the fuck out, don't talk to me and don't even approach me.
 
 "ragebaiters" and drama seekers. self explainatory i just don't want you to impliment me to your petty dramas you created yourself.
+
+HEAVY DNI if you don't know what boundaries are, nor don't respect them for some reason.
 
 fans of MD, forsaken, hazbin/helluva, TADC and TFC are on thin ice. you guys are free to interact, but be normal please.
