@@ -4,5 +4,6 @@
 <p align="center"> ♫⋆｡♪ ₊˚♬
 <p align="center">  This is PonyTown info only!
   <p align="center"> Basic infos are on my Carrd
-<p align="center"> ✶ ── 🎼 ❞₊˚ BYI┆DNI ˚₊❞ 🎼  ── ✶
+<p align="center"> ✶ ── 🎼 ❞₊˚ [BYI](https://rentry.co/siannbyi) ┆ [DNI](https://rentry.co/sianndni) ˚₊❞ 🎼  ── ✶
 
+<p align="center"> editor note: i DON'T KNOW why the links are showcased like that but i'll fix it asap 🙏
