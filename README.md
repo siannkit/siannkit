@@ -3,9 +3,10 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/dbdf04effb2b1ceb14b3d479f23f0191/bf26877b56e925bf-d5/s1280x1920/8300f513b05eed15be602070fb36761ce21ca03b.pnj" alt="Banner" width="400">
 <p align="center">  Greetings .ᐟ
+  <p align="center"> I am quite a lonely fellow.. Nevertheless, i appreciate anyone's company.
+    <p align="center"> Don't be afraid to interact or cuddle with me!
 <p align="center"> ✧༺ <a href="https://sageoftruths.carrd.co/"> Carrd <a> ┆ <a href="https://siann.atabook.org/"> Atabook <a> ༻✧
   <p align="center">
-    <p align="center"> pfp and banner by Lovewired on Tumblr
 <p align="center">
   <img src="https://64.media.tumblr.com/825bd89b4461fa47c92bfa6527ad9bed/2a25a5e1abd64440-31/s250x400/5b439c5f2e935962b104f9557dacd61048c74854.gifv" alt="stamp" width="100">
   <img src="https://64.media.tumblr.com/3226232d4ad9a8fed1eb91924af87e5f/40a5f2f6c73ca09f-45/s250x400/37b120c3a502f839b4d724171fba7038202d13e9.gifv" alt="stamp" width="100">
