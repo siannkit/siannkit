@@ -15,7 +15,9 @@
   <p align="center">
   <img src="https://64.media.tumblr.com/59be7814b24f02aeb69195006f4615dd/f1e5b835360e8dfa-a2/s2048x3072/2b678ba5538982ed458a70e62dfa410a94a70101.pnj" 
   <p align="center">
-    <img src="https://64.media.tumblr.com/b99e8d1b8d21ccc16994b26412a4669d/734e49749074d724-f7/s250x400/2479d84eed8c37f5e845338540c5a43aa6c7cff9.gifv" width="200">
+    <img src="https://64.media.tumblr.com/31873cfc9765f4f6e84a4b7a47328fa6/1544adffabd529f1-a0/s75x75_c1/db5dfd5614f98291d7eeeb3bbe6d5c10ddd15191.gifv">
+    <p align="center">
+    <a href="https://github.com/Shamimilk"> [ ᵖᵒᵏᵉ ᵗʰᵉ ᵉʸᵉ ]
 <p align="center">
 
 
