@@ -18,7 +18,7 @@ or　simply　sit　idly　by　!
 
 <p align="center"> <a href="https://rentry.co/shamimilk"> Info　about　the　jester<a>
 
-<p align="center"> <a href="https://siannkit.atabook.org"> Sign　if　you　dare　!<a>
+<p align="center"> <a href="https://siann.atabook.org/"> Sign　if　you　dare　!<a>
 <img align="center" alt=header src="https://64.media.tumblr.com/d7dc9ea6293ffe71055584e649bbb032/f1e5b835360e8dfa-5a/s2048x3072/24f360a611f8eb697df5d2ee3abb6ff2a50e74a2.pnj" />
 <p align="center"> RANDOM BULLSHIT GO!!!!!!
   <p align="center"> 
