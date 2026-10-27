@@ -5,7 +5,7 @@
 
 ｡　　　　　　　He　/　They
 
-Certified　❛❛　Shadow Milk Cookie　❜❜　by　@THE-TEMPIST
+Certified　❛❛　Shadow Milk Cookie　❜❜　by　[@THE-TEMPIST](https://github.com/THE-TEMPIST)
 
 ➥　I'm　what　you　call　a　docks　lurker,　I　either　spectate
 
