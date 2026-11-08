@@ -21,10 +21,16 @@ or　simply　sit　idly　by　!
 <p align="center"> <a href="https://siann.atabook.org/"> Sign　if　you　dare　!<a>
 <img align="center" alt=header src="https://64.media.tumblr.com/d7dc9ea6293ffe71055584e649bbb032/f1e5b835360e8dfa-5a/s2048x3072/24f360a611f8eb697df5d2ee3abb6ff2a50e74a2.pnj" />
 <p align="center"> RANDOM BULLSHIT GO!!!!!!
+  <p align="center"> <img alt=My_wife src="https://64.media.tumblr.com/c368a258287325ccf851c02194229ec9/13cd13faeb5ba17e-4d/s540x810/3ffcfcb2335662b455b80271f7653fab64858416.pnj" width="220" />
   <p align="center"> 
 <img alt=stamp_1 src="https://64.media.tumblr.com/2279c9688ece89593b1fd90b79344155/1544adffabd529f1-1e/s400x600/0880fa339291d8b2e014b900e8bf9f3d9ba1df3e.pnj" />
 <p align="center"> 
-<img alt=stamp_2 src="https://64.media.tumblr.com/18383df0af8adc04957a6a13c9e7b5ad/926043b8d5268d9d-2e/s250x400/bef07ab82d0d518e69105f104e01f7296367fd74.pnj" width="70" />
+<img src="https://64.media.tumblr.com/d1f59c4973ac336d522bad0272b6a785/d7be81566c6e3232-39/s250x400/2b02ee2696bb57d8e1e72d091dd216e23e6cc825.gifv" />
+<img src="https://64.media.tumblr.com/ded430e7ba03a030c1b5606c9d5845fd/3a496f8cfa734c8c-b3/s75x75_c1/a42b12fa62336e31884b57e1c75c28568aae17e3.gifv" />
+  <img src="https://64.media.tumblr.com/2e28e899fcbee84f1634ec1674d7deb5/2a0ef1f36bd0576b-10/s100x200/6a532df78d45b55a5e009ac4bbd0e0e2a11d1554.gifv" />
+  <img src="https://64.media.tumblr.com/606cd53c8090ca66b53842d7148c7319/b6403a00c7e31594-f7/s100x200/408bd2dbc1ad2d9c0d3835a118c78286918fef59.gifv" />
+  <img src="https://64.media.tumblr.com/4bc1d918dd098299505b64d54d8032c4/e5d2be417a1a67a0-6d/s75x75_c1/6ae386b122d171390e47210e1d5af4727ecc532b.gifv" />
+  <p align="center"> <img alt=stamp_2 src="https://64.media.tumblr.com/18383df0af8adc04957a6a13c9e7b5ad/926043b8d5268d9d-2e/s250x400/bef07ab82d0d518e69105f104e01f7296367fd74.pnj" width="70" />
 <img alt=stamp_3 src="https://64.media.tumblr.com/746b02a6882e77c9f6eacd0adee74fb4/9127c256e4222219-af/s100x200/19794ca89074da264adb8a07b03c168b34287536.gifv" width="70" />
 <img alt=stamp_4 src="https://64.media.tumblr.com/2d6871bf0812a3338da2987cb02fb4c7/8a89dff9ea5cc411-6e/s250x400/6f84fecb9a73dc3d8749aee00cd108e0e571ce66.gifv" width="70" />
   <img alt=stamp_5 src="https://64.media.tumblr.com/f3a7984c1762fd9f165d3c93155b3a0f/8cab99197935cd85-38/s100x200/a8212b1864f472909fe5640820a1197995636227.pnj" width="70" />
