@@ -49,4 +49,4 @@ or　simply　sit　idly　by　!
               <img alt=stamp_18 src="https://64.media.tumblr.com/4a3c7cb63c0f2aa6c0893756f2c0b4e7/94bdaffebd6f106d-9e/s100x200/946a585d8247a15f124b401d77bd02e3219734fe.gifv" width="70" />
               <img alt=stamp_19 src="https://64.media.tumblr.com/b5de0f3346cd5a93d544e0e3777787f9/ec8923cd04bc0a16-b2/s100x200/9ebf1f4ae2f4b25f2c0e174c478e5408ed7a5e7c.gifv" width="70" />
               <img alt=stamp_20 src="https://64.media.tumblr.com/849f9c9abf4250e6e84ca77170700622/859cfd533e1fa81f-b9/s100x200/eb31f015ce76e1311efaee1cd67531caa5114451.gifv" width="70" />
-<p align="center"> Psst... Hey. I have an <a href="https://www.instagram.com/siannkit/"> Instragram<a> if you want to see my art :-3
+<p align="center"> Psst... Hey. I have an <a href="https://www.instagram.com/siannkit/"> Instagram<a> if you want to see my art :-3
