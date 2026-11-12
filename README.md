@@ -17,8 +17,8 @@ or　simply　sit　idly　by　!
 <img align="center" alt=image src="https://64.media.tumblr.com/31842b8425355a4fdad0892e07bd123d/c45753fcc54e6f92-0f/s400x600/a692e6683d26c84eb06623eb03044ff479eda197.gifv" />
 
 <p align="center"> <a href="https://rentry.co/shamiilkcookie"> Info　about　the　jester<a>
-
-<p align="center"> <a href="https://siann.atabook.org/"> Sign　if　you　dare　!<a>
+<p align="center"> m/w <a href="https://github.com/witheringpetals"> @witheringpetals<a>
+  <p align="center"> <a href="https://siann.atabook.org/"> Sign　if　you　dare　!<a>
 <img align="center" alt=header src="https://64.media.tumblr.com/d7dc9ea6293ffe71055584e649bbb032/f1e5b835360e8dfa-5a/s2048x3072/24f360a611f8eb697df5d2ee3abb6ff2a50e74a2.pnj" />
 <p align="center"> RANDOM BULLSHIT GO!!!!!!
   <p align="center"> <img alt=My_wife src="https://64.media.tumblr.com/c368a258287325ccf851c02194229ec9/13cd13faeb5ba17e-4d/s540x810/3ffcfcb2335662b455b80271f7653fab64858416.pnj" width="220" />
